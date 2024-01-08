@@ -1,1 +1,1 @@
-https://www.mansoftdev.com/blogs/10
+https://www.mansoftdev.com/blogs/25
